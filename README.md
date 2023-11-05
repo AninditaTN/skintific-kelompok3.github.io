@@ -1,1 +1,0 @@
-# skintific-kelompok3.github.io
